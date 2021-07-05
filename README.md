@@ -1,1 +1,0 @@
-"# ITMGT_Buenaventura" 
